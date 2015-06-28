@@ -1,6 +1,18 @@
 # FunCity
 
-Hello
-This is FunCity.
+Welcome to FunCity
+...
+..
+.
 
-This line written in windows. 
+Hello
+....................
+This is out FunCity.
+
+.............................
+This line written in windows.
+
+
+
+.......
+THE END 
