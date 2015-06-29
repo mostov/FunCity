@@ -14,6 +14,10 @@ This line written in windows.
 
 mosto :|:|||||||||
 
+sallam dadash :D
+ina re mo neveshtom :D
+elan :d
+
 
 .......
 THE END 
